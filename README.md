@@ -223,3 +223,6 @@ Medieval 2 Total War is available as a **full free version**, complete with all 
 ---
 
 Don't miss out on the chance to conquer Europe and America in Medieval 2 Total War. **Download now and immerse yourself in epic battles!**
+
+---
+**Last updated:** 2026-09-16 10:36:40 UTC
